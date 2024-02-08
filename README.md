@@ -1,2 +1,2 @@
 # piedrapapelotijera
-https://gemmaclaverodelmoral/piedrapapelotijera.com
+https://gemmaclaverodelmoral.github.io/piedrapapelotijera/
